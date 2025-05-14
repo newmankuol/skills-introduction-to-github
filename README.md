@@ -1,3 +1,3 @@
 👋 Hi there, 
-I'm. working as a teacher 
+I'm working as a teacher 
 I writes poems. 
